@@ -1,0 +1,4 @@
+- 👋 Hi, you can call me Alex!
+- 👀 I’m interested in post-pop and rap music and kubrick's movie, 
+- 🌱 I’m currently learning how to enjoy my life.
+- 📫 My wechat is 'Alexcured'.
